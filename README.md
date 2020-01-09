@@ -6,5 +6,6 @@
 ## 阅读往期
 [点此阅读往期](old.md)
 
-### 总第七期(最新)
-![007x.jpg](https://i.loli.net/2020/01/04/MeTj8Yn5wZOKoFL.jpg)
+### 总第八期(最新)
+![008.jpg](https://i.loli.net/2020/01/09/Sox8Ph7OqYadijs.jpg)
+
